@@ -4,7 +4,7 @@
  
 
  
-  ![Example GIF](https://files.catbox.moe/a261m8.jpg)
+  ![Alt Tag](https://files.catbox.moe/12v72y.png)
 
   [Strawpage‎](https://sakura-haruka-my-boy.straw.page)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://smolbrant.atabook.org)
   
