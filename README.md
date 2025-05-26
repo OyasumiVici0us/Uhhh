@@ -4,7 +4,7 @@
  
 
  
-  ![Alt Tag](https://files.catbox.moe/12v72y.png)
+  ![Alt Tag](https://files.catbox.moe/zxzf1k.png)
 
   [Strawpage‎](https://sakura-haruka-my-boy.straw.page)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://smolbrant.atabook.org)
   
