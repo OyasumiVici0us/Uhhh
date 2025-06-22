@@ -9,7 +9,7 @@
 
   
 
-  [Strawpage‎](https://sakura-haruka-my-boy.straw.page)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://smolbrant.atabook.org)
+  [Strawpage‎(https://vici0us.straw.page)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://vicious.atabook.org)
   
 
 </div>
