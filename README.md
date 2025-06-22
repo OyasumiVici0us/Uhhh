@@ -9,7 +9,7 @@
 
   
 
-  [Strawpage]‎(https://vici0us.straw.page)    ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://vicious.atabook.org)
+  [Strawpage](https://vici0us.straw.page)  ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [ATABOOK](https://vicious.atabook.org)
   
 
 </div>
